@@ -1,3 +1,3 @@
 # Demo
 
-im zeni 
+im zeni and stupid
